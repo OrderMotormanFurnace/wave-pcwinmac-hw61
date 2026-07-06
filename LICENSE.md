@@ -1,4 +1,4 @@
-# 
+# Principal Wave preajustes para Mac OS | Actualizado Wave preajustes para PC Windows. Con copias de seguridad automáticas y cumplimiento de políticas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
